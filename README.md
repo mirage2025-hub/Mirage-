@@ -1,2 +1,0 @@
-# Mirage-
-DIGITAL MARKETING project 
